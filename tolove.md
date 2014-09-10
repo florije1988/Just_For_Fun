@@ -1,4 +1,4 @@
-# 献词
+# 致谢
 
 此书献给Tove、Patricia、Daniela与Celeste。我总希望身边有年轻女子环绕，你们实现了我的愿望。
 
